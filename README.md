@@ -15,4 +15,5 @@ A négy nap alatt sajnos nem sikerült befejeznem a feladatot, az említett fron
 Köszönöm a lehetőséget!
 
 Üdvözlettel,
+
 Engelmann Ákos
